@@ -1,2 +1,0 @@
-# pablol
-Study
